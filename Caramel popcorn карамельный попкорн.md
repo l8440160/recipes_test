@@ -25,7 +25,7 @@ Salt to taste
 
 Pop up the popcorn and spread it out in a thick layer on a parchment lined baking sheet.
 
-Bring the water to a boil and then add the sugar. Let this mixture simmer on medium heat until it turns a deep rich brown. Don't stir! Just be patient and let it do its thing. The longer you leave it, the darker and more flavourful the caramel will get. You'll figure out what's to your taste after making a batch or two, but for me I like mine nice and dark.
+Bring the water to a boil and then add the sugar. Let this mixture simmer on medium heat until it turns a deep rich brown. Don't stir! Just be patient and let it do its thing. The longer you leave it, the   darker and more flavourful the caramel will get. You'll figure out what's to your taste after making a batch or two, but for me I like mine nice and dark.
 
 When the caramel gets to your liking, add the stick of butter and blend it together. Then add the teaspoon of baking soda. Get ready, because it will fizz up fast. Drizzle over the popcorn and give it a gentle stir here and there to get a bit of caramel on every popcorn piece. Sprinkle quickly with a bit of flake salt to give it a bit of crunch on the popcorn.
 
